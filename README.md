@@ -6,5 +6,5 @@
 You can reach me via:
 
 * 👉 [Twitter](https://twitter.com/chicoio_)
-* 👉 [Email](mailto:olachico@gmail.com)
+* 👉 [Email](mailto:olachico@icloud.com)
 * 👉 [Gitlab](https://gitlab.com/chiico)
